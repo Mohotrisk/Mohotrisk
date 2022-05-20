@@ -3,7 +3,6 @@
 
 
 - 🖥️ Estudando Ciências da computação
-- 💻 Trabalho com logística
 - 🌱 Vegetariano e futuro vegano
 - 🖱️ Quero mudar vidas através da Tecnologia
 - 📫 Meu contato é diegosocial20@hotmail.com
